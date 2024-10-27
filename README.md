@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **godwinohazulike@gmail.com**
 
-- 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:EU:a9ab155a-a7f0-472e-a43c-55047d708207](https://acrobat.adobe.com/id/urn:aaid:sc:EU:a9ab155a-a7f0-472e-a43c-55047d708207)
+- 📄 Know about my experiences [My Resume]([https://acrobat.adobe.com/id/urn:aaid:sc:EU:a9ab155a-a7f0-472e-a43c-55047d708207](https://drive.google.com/file/d/1xXvfxpkMxVgl66PMD6U_vf5xU6Cn3UJQ/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
